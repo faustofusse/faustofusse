@@ -1,2 +1,2 @@
-# fαustσ me dicen.
+# fαustσ
 ⭐️⭐️⭐️
